@@ -1,2 +1,2 @@
-# chisipodesigns
-Chisipo Designs - Powerful Creations for growth
+#chisipotech
+Chisipo Technologies - Powerful Creations for growth
